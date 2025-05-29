@@ -1,0 +1,1 @@
+I gained skills in commits, html, css, and other concepts related
